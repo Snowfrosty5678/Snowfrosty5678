@@ -3,7 +3,7 @@
 Meu nome é Maria Eduarda de Arruda 
 
 - Estou estudando na Alura
-- Estou me desenvolvendo em Linguagem JavaScript
+- Estou me desenvolvendo na Linguagem JavaScript
 - Utilizo este espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 - ### Você pode entrar em contato comigo 📫
