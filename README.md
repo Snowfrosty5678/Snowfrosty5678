@@ -12,4 +12,4 @@ maeduarruda13@gmail.com
 
 @Snowfrosty5678 
 
-![](https://tenor.com/bPuBc.gif)
+![](https://tenor.com/waving-goodbye-vanellope-gif-24626340)
