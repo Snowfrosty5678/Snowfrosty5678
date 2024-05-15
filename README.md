@@ -12,4 +12,5 @@ maeduarruda13@gmail.com
 
 @snowfrosty5678
 
-![](https://tenor.com/bPuBc.gif)
+![](![image](https://github.com/Snowfrosty5678/Snowfrosty5678/assets/169908401/a93bcc17-3076-440b-b16b-276d10879a58)
+
