@@ -12,4 +12,5 @@ maeduarruda13@gmail.com
 
 @Snowfrosty5678 
 
-![](https://tenor.com/waving-goodbye-vanellope-gif-24626340)
+![](https://github.com/Snowfrosty5678/Snowfrosty5678/assets/169908401/bfb36470-bcf8-4d13-9c6e-2f8b97fd3b7c)
+
